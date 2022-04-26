@@ -1,3 +1,1 @@
-# Zio Bot
-
-Strona dostępna wkrótce
+**Strona dostępna wkrótce!**
